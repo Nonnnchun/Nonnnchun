@@ -1,6 +1,6 @@
 # MyGrowth
-### Life Started from this section
-### 📈 Improving My Coding Skills
+### 👾 ☠️ Life Started from this section
+### 🤖 💪🏼 Improving My Coding Skills
 
 ---
 
